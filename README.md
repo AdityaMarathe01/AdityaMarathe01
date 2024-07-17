@@ -1,4 +1,4 @@
-[![MasterHead](https://media1.tenor.com/m/jhsMAREYalUAAAAC/pacman-gaming.gif)](https://rishavchanda.io)
+[![MasterHead](https://www.icegif.com/wp-content/uploads/2023/08/icegif-219.gif)](https://rishavchanda.io)
 
 <h1 align="center">Hi 👋, I'm Aditya Marathe</h1>
 <h3 align="center">Stepping into TECHNICAL WORLD!!!</h3>
